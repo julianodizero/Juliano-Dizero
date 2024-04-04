@@ -1,4 +1,3 @@
-# Juliano-Dizero
 ## Bem-vindo(a) ao perfil do Juliano-Dizero
  😁
 
